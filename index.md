@@ -1,6 +1,5 @@
-## BBBriar Books
-
-You can use the [editor on GitHub](https://github.com/BBBriar/Abide-Book/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+# BBBriar Books
 
 ### BOOK ONE
-[Abide BOOK (8).docx](https://github.com/BBBriar/Abide-Book/files/7003051/Abide.BOOK.8.docx)
+
+[Abide.pdf](https://github.com/BBBriar/Abide-Book/files/7003121/Abide.BOOK.1.pdf)
