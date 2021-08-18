@@ -1,16 +1,15 @@
 ![image12](https://user-images.githubusercontent.com/89104596/129842886-81b26ce2-3098-461a-999b-d27f71bfa69b.png)
 
-All rights reserved. No part of this publication may be reproduced, distributed, or transmitted in any form or by any means, including photocopying, recording, or other electronic or mechanical methods, without the prior written permission of the publisher, except in the case of brief quotations embodied in critical reviews and certain other noncommercial uses permitted by copyright law.
+> All rights reserved. No part of this publication may be reproduced, distributed, or transmitted in any form or by any means, including photocopying, recording, or other electronic or mechanical methods, without the prior written permission of the publisher, except in the case of brief quotations embodied in critical reviews and certain other noncommercial uses permitted by copyright law.
 
 https://bbbriar.github.io/Abide-Book/
 
-In view of God’s mercy
+> In view of God’s mercy
 
-For my brothers and sisters in Christ
+> For my brothers and sisters in Christ
 
-“So then, just as you received Christ Jesus as Lord, continue to live your lives in him, rooted and built up in him, strengthened in the faith as you were taught, and overflowing with thankfulness”
-
-Colossians 2:6-7
+> “So then, just as you received Christ Jesus as Lord, continue to live your lives in him, rooted and built up in him, strengthened in the faith as you were taught, and overflowing with thankfulness”
+> Colossians 2:6-7
 
 ## Introduction
 
@@ -34,25 +33,12 @@ Ephesians 3:19 speaks of the fullness of God as a product in believers from the 
 
 It’s absolutely mind-boggling to me that God invites us to enjoy his fullness. Upon the gracious act of salvation, believers are brought into a relationship with God. Colossians 2:10 says that “in Christ you have been brought to fullness. He is the head over every power and authority.” Jesus offers his fullness to those who will abide in Him. As the fruit is sustained by the tree, so are people meant to find sustenance in Christ. This was the original plan in the Garden of Eden. And it’s still meant to be that way. When we abide in Christ and he abides in us, we may experience his power and love in their most potent form -- oneness with God the Father, Son, and Spirit. Therein lies the goal of this study -- to be transformed.
 
-“Do not conform to the pattern of this world, but be transformed by the renewing of your mind. Then you will be able to test and approve what God’s will is, his good, pleasing and perfect will” (Romans 12:2)
+> “Do not conform to the pattern of this world, but be transformed by the renewing of your mind. Then you will be able to test and approve what God’s will is, his good, pleasing and perfect will” > (Romans 12:2)
 
 # Section One: Facing the Past
 
-“Forget the former things;
- do not dwell on the past.
- See, I am doing a new thing!
- Now it springs up; do you not perceive it?
- I am making a way in the wilderness
- and streams in the wasteland.
- The wild animals honor me,
- the jackals and the owls,
- because I provide water in the wilderness
- and streams in the wasteland,
- to give drink to my people, my chosen,
- the people I formed for myself
- that they may proclaim my praise”
-
-(Isaiah 43:18-21)
+> “Forget the former things; do not dwell on the past. See, I am doing a new thing! Now it springs up; do you not perceive it? I am making a way in the wilderness and streams in the wasteland. The wild animals honor me, the jackals and the owls, because I provide water in the wilderness and streams in the wasteland, to give drink to my people, my chosen, the people I formed for myself that they may proclaim my praise”
+> (Isaiah 43:18-21)
 
 ## CHAPTER ONE: Jesus is More Than Enough
 
