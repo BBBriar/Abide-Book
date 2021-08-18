@@ -179,3 +179,92 @@ The truth of scripture understands fear as a matter of submitting. It is a sin t
 | Pain & Suffering |        Safety       |
 |                  |                     |
 |     Conflict     |        Peace        |
+
+
+### Fighting the Enemy
+
+> “Be strong and courageous, do not be afraid or tremble in dread before them, for it is the LORD your God who goes with you. He will not fail you or abandon you” (Deut 31:6).
+
+To put off fear, we must put off fearful thoughts. Think about the things you are afraid of. Maybe write them down. And think about why you are afraid. Then ask yourself, how can I change this thinking to reflect God’s sovereignty and goodness? Consider the second anagram that I changed to reflect the spiritual reality:
+
+# Faith Equips Against Rival
+
+Insteading of attributing power to your fears, recognize your humanity in light of an omniscient God who knows exactly what you’re going through and has power to relieve you, not just from the fear but from its source! 
+
+We know from scriptures the true identity of our enemy. It is nothing physical that we war against as Christians. We do not fight against each other or against the world, “but against principalities, against powers, against the rulers of the darkness of this age, against spiritual hosts of wickedness in the heavenly places” (Eph 6:12), against Satan, the ruler and prince of this world. His purpose is singular, to get in the way of God’s plans by hindering the Church. His primary method of attack is lies (John 8:44) and he will continue to do so until his inevitable defeat at the end of the age (Rev 20:7-10).
+
+We know from scripture that God is sovereign over everything, including the devil. We know from scripture that the only reason Satan still threatens us is because God allows it (Job 1:6-12), because that’s what humanity chose instead of God (Gen 3). And so, because of the reality presented to us upon birth, we as a church have a decision to make. Sin, temptation, evil desires, lies, etc. exist, however much we may not want them to. Will we submit to them and live as the rest of the world does, for the fleeting moment? Or will we endure hardship and fight for the sake of knowing God and being made into the likeness of Christ for an eternal dwelling?
+
+> “Be alert and of sober mind. Your enemy the devil prowls around like a roaring lion looking for someone to devour. Resist him, standing firm in the faith, because you know that the family of believers throughout the world is undergoing the same kind of sufferings” (1 Peter 5:8-9)
+
+When we rest in faith and trust God in the midst of fear, our minds are renewed with transformed thinking. Worldly fears, when submitted to the sovereignty of God, become examples of divine thankfulness and trust. Pick one of your fears and apply transformation using the examples below.
+
+### Worldly Fears
+1. Turbulence! Oh, no, the plane might crash! I don’t want to die!
+2. I don’t want to go in the water. What if I drown?
+3. I don’t trust my significant other. I'm afraid they’re cheating.
+4. I’m afraid of dogs because I got bit once.
+5. I lost my job! It’ll be months before I can find another one! How will I feed my family?
+
+### Transformed Fears
+1. Thank you Lord for everything you've given me. I trust you completely. Give me strength to get through this flight
+2. Thank you God for your good creation. I acknowledge my fears are based on the worst circumstance, not on any intrinsic qualities of the water. Help me to conquer my fear. Please keep me safe, O Lord
+3. Thank you Jesus for your amazing love. Thank you that you will never leave me nor forsake me. Help me to trust my significant other and help us grow together in righteousness for your name’s sake.
+4. Thank you almighty God for your good creation. Everything you made reflects your creativity and wisdom, even the smallest little bug. Help me get over my fear. I acknowledge that my isolated incident does not apply to all dogs.
+5. Thank you Lord for my family. You know I care for them deeply and don’t want them to suffer. I trust you to provide for us as your Word promises. I trust you will work all things for the good of those who love you and are called according to your purpose (Rom 8:28). Please help me find work and in the meantime, set a good example to my family by being thankful and joyful.
+
+Notice how all of these fears are based around uncertainty. Notice how they can all be reworded as “What if” statements. And notice also how the worries can honor God if we place them in his hands. He desires that we share our burdens with him. He is there to comfort and guide us. Psalm 55: 22 instructs, “Cast your burden on the LORD, and he will sustain you; he will never permit the righteous to be moved.” 
+
+In every trial let us call upon the Lord, and he will save us. To cast our burden upon God is to rest in his sovereign promises. And when we choose, instead of fearing, to trust God, he is faithful to sustain us amidst the most terrible struggle. He will impart to our spirits the strength and perfection of his divine Spirit so that we may glorify him as image bearers. As redeemed Christians, we are Christ’s ambassadors and ought to live our lives in remembrance of him. “He will never suffer the righteous to be moved, to be so shaken by trials as to forget their duty to God or their comfort in him. He will not suffer them to be utterly cast down. He, who bore the burden of our sorrows, desires us to leave to him to bear the burden of our cares, that, as he knows what is best for us, may provide it accordingly.”
+
+### Fear God Who is Eternal, not the Temporary World
+
+Irrational fears, the ones we discussed above, are never good. But fear can be a good thing, when rightly understood. See what Jesus says, speaking to his twelve disciples,
+
+> “Do not be afraid of those who kill the body but cannot kill the soul. Rather, be afraid of the One who can destroy both soul and body in hell. Are not two sparrows sold for a penny? Yet not one of them will fall to the ground outside your Father’s care. And even the very hairs of your head are all numbered. So don’t be afraid; you are worth more than many sparrows” (Matt 10:28-31) 
+
+In Jesus’ time, sparrows had little cultural importance and were a cheap source of food for poor families. 
+
+Luke reiterates Jesus’ words in 12:4-7: “I tell you, my friends, do not fear those who kill the body, and after that have nothing more that they can do. But I will warn you whom to fear: fear him who, after he has killed, has authority to cast into hell. Yes, I tell you, fear him! Are not five sparrows sold for two pennies? And not one of them is forgotten before God. Why, even the hairs of your head are all numbered. Fear not; you are of more value than sparrows.” 
+
+The point remains, if God cares so deeply about a little bird with little worth, how much more so will God take care of you, his most prized creation! So don’t consider the sparrows of the world a threat to your livelihood, but consider the one who created them and intended them for a purpose, who created you and intended an eternal life for you! Do not choose eternal death by following after the sparrows!
+
+To fear God is not to be afraid of him. It is simply to acknowledge him for who he truly is.
+
+There are so many instances in scripture where fear of the Lord imparts blessing and wisdom to those who have it. So what is it, really? Because we have such a negative connotation of fear, it can be hard to attribute it to a loving God. Fearing God doesn’t mean we fear him like we do darkness, spiders, or other scary things. I think it means three things: 
+
+(1) It means that we acknowledge who he is as the Alpha and Omega, creator of the universe, omnipotent and omnipresent. Revelation 1:17 reads. “When I saw him, I fell down at his feet like a dead man. He put his right hand on me and said, ‘Do not be afraid. I am the First and the Last.” 
+
+(2) It also means that we acknowledge who we are as sinners who deserve only his wrath because of our disobedience. “But the cowardly, the unbelieving, the vile, the murderers, the sexually immoral, those who practice magic arts, the idolaters and all liars--they will be consigned to the fiery lake of burning sulfur. This is the second death” (Revelation 21:8). 
+
+(3) it reflects our genuine appreciation of his grace because of this discrepancy. The Bible says that “while we were yet sinners, Christ died for us.” Another way to interpret this is, ‘while we were yet his enemies.’ God gave us everything, even when we deserved the exact opposite! So rejoice! Be thankful for his amazing grace! Yahoo! I’m forgiven! Thank you Jesus! 
+
+In our culture, we see everything from a point of legal rights. As a citizen, I feel I have the right to a lot of things which in reality, I don’t. I have the right to a fair trial. Try and tell that to marginalized communities. I have the right to express my opinions. Not in this cancel culture you don’t. I am endowed with natural rights like the right to own property and the right to question the government. Think about all the small businesses that have been shut down for not conforming against their religious beliefs. We are so quick to judge that too often rights are infringed on. And too often do we bring this sense of “I deserve better” into God’s economy. Because of our national rights, we assume God gives us rights as well, and when things don't go our way we complain and blame God. We can’t possibly understand his unrequited love with a legalistic frame of mind! This is fear of hardship, not fear of God. This is worshiping selfish expectations, not submitting to God’s “good, perfect, and pleasing” will. And you say again, “How is hardship ‘good, perfect, and pleasing?’ Obey God, wait it out, and you’ll see! God did not create you to have an easy life. He created you to glorify Him by living the set apart life, and we’ll get into that in the third section later in the book. 
+
+Remember in the Old Testament the many steps the Israelites needed to take before they could approach God? Remember the complicated sacrifices they had to make to cover their sins? Remember how the glory of God instilled fear in their hearts? They did not take his holy presence lightly and had a clear understanding of his great mercy and his wrath against unrepentant sin. God is a god of love AND justice. Fear of the Lord acknowledges his deity; take heed, lest we forget and lose our way. 
+
+Jesus warns near the end of his sermon on the mount, “Enter through the narrow gate. For wide is the gate and broad is the way that leads to destruction, and many enter through it. But small is the gate and narrow the way that leads to life, and only a few find it” (Matt 7:13-14), and again a few verses later, “Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but the one who does the will of my Father who is in heaven (Matt 7:21). Here he reminds us of the severity of God’s command to be righteous, to walk through life as reflections of his glory. I was listening to a pastor on the radio the other day and he was talking about the kingdom of God as represented in revelation, how the city is built with the purest gold, onyx, diamond, topaz, emerald, jasper. And how the glory of God reflected off of them with unimaginable magnificence. He talked about how people are like those jewels, that the light of God’s glory is refracted through us into knowable colors, godly characteristics. 
+
+> “Now the Lord is the Spirit, and where the Spirit of the Lord is, there is freedom. And we, who with unveiled faces all reflect the glory of the Lord, are being transformed into His image with intensifying glory, which comes from the Lord, who is the Spirit” (2 Cor 3:17)
+
+I wonder, what is the shade of God’s glory in you? Is it bright and clearly visible, or is it dim or maybe even transparent? Do you have a right fear of the Lord so as to honor and obey him and glorify him?
+
+Fear of the Lord is undeniable proof that you are set apart as his. It is holy and does away with sin. Fear of God is rightly revering his authority and power. We fear his wrath against sin; we love his saving grace. And so we submit to His will and keep his commandments. Rather than give power to death, danger, discomfort or uncertainty, we give it to whom it is properly due, to the one who is able to deliver us from all of these things. In short, the fear of God is to fear nothing else.
+
+> “God’s fear is properly in men’s hearts; but here the sense seems to be this, that this fear, i.e. his dreadful manifestation of his majesty and justice, (the act being here put for the object,) may be now and ever before your eyes, and in your memories, as an effectual preservative from sin.” 
+
+By this commentary, we can better understand what the fear of the Lord does: it preserves us from sinful worldly fear! And even this, that many of my fears can become joys! As in suffering for the building up of God’s kingdom or denying myself to love others better. Because I no longer fear death or pain or rejection, I can boldly proclaim the good news of Jesus with boldness! I can serve God behind the scenes with an unsurpassed sense of fulfillment. Fear of missing out no longer directs my choices: I can now spend my whole day reading the Bible and praying and enjoy the far richer blessing of communing with God, even though I could be watching TV or hanging out with friends. It is now my greatest joy to serve God, whereas before I would serve myself and my own desires. 
+
+> “When I am afraid, I put my trust in you."  (Psalm 56:3)
+
+Through my earthly fears, God revealed my deep weaknesses and great need for Christ. By renewing my thinking (Rom 12:1) with believing in the power of Jesus’ death, burial and resurrection, studying the Bible, prayer, and fellowship with the saints, God transformed my heart and mind from life in the flesh to life in the Spirit and obliterated my fears. Because of his grace and perseverance working in me, I have the power to choose boldness and put away fear.
+
+My prayer for you is that you would see God more fully in the scriptures. That He would impart wisdom and discernment to you, and that your worldly fears would be replaced with fear of the Lord.
+
+I remember trying to read the Bible in my youth, loving the stories and famous passages but loathing the law and the prophets. “It’s so boring! Where’s the action? Give me David and Goliath! Give me Noah’s Ark!” Now having a better understanding of the entirety of scripture, those boring passages have come to light! Jesus is the fulfillment of all scripture and his presence is clearly seen in every chapter. The author and perfecter of our faith, the climax of the Bible and the hero of the story appears even in the Old Testament laws about food. Christ’s death, burial and resurrection met the letter of the law for all people, past, present, and future. Now because of the Son, God sees us as sinless, perfect creatures! This is not an excuse to continue sinning, but what relief! Because of Jesus, I am not held accountable for my sin nature but am given a new nature that exudes light and life! So be anxious for nothing! Do not be afraid of death, for it is the gateway to eternal life with God! Do not be afraid of suffering, for it is the means of so many spiritual blessings! Don’t worry about tomorrow but trust in God’s many perfect promises!
+
+> “And which of you by being anxious can add a single hour to his span of life? … Therefore do not be anxious about tomorrow, for tomorrow will be anxious for itself. Sufficient for the day is its own trouble.” (Matt 6:27 ; 34)
+
+> “Rejoice in the Lord always, again I will say rejoice. Let your reasonableness be known to everyone, the Lord is at hand; do not be anxious about anything, but in everything by prayer and supplication with thanksgiving let your requests be made known to God. And the peace of God, which surpasses all understanding, will guard your hearts and your minds in Christ Jesus.” (Phil 4:4-7)
+
+> “Who among you fears the Lord and obeys the word of his servant? Let the one who walks in the dark, who has no light, trust in the name of the Lord and rely on their God.” (Isaiah 50:10)
