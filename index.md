@@ -187,7 +187,7 @@ The truth of scripture understands fear as a matter of submitting. It is a sin t
 
 To put off fear, we must put off fearful thoughts. Think about the things you are afraid of. Maybe write them down. And think about why you are afraid. Then ask yourself, how can I change this thinking to reflect God’s sovereignty and goodness? Consider the second anagram that I changed to reflect the spiritual reality:
 
-# Faith Equips Against Rival
+### Faith Equips Against Rival
 
 Insteading of attributing power to your fears, recognize your humanity in light of an omniscient God who knows exactly what you’re going through and has power to relieve you, not just from the fear but from its source! 
 
