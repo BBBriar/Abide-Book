@@ -338,3 +338,13 @@ Matthew Henry comments on the passage, “the apostle did not mean that men are 
 Wearing shame is accepting defeat. But because of God’s sufficient grace (2 Cor 12:9), we can wear his forgiveness and mercy instead. As we learn to offer our shame to God, our trust in him grows, and lasting victory over sin is sure to come. There will always be sin in the believer, but if we trust him, he is faithful to sanctify us more and more into the likeness of his son, Jesus. 
 
 You gotta act freedom out and apply it before it becomes real. You can be free and not know it! Don’t let shame overwhelm you so that you become like 2 Peter 1 and forget that you have been cleansed of your sins, once and for all. Instead, stand on God’s promises. Therefore, practice Paul’s wisdom from Philippians 3:12: “but this one thing I do-- forgetting what is behind and straining toward what is ahead.”  
+
+## Chapter Four: Anger
+
+Nothing makes Americans more angry than other Americans. We live in a time dominated by political correctness and anyone who doesn’t fit into your particular mold is an enemy. There are about 328.2 million people living in this country, and it seems like each person is divided from the other. Democrats and Republicans are like two opposing armies, it’s gotten so bad! What happened to “one nation, under God, indivisible, with liberty and justice for all”? I think the last time I heard the national anthem was in elementary school, twenty years ago. Look closer at the words in that statement of identity:
+
+• One Nation
+• Under God
+• Indivisible
+• Liberty and Justice
+• For All
