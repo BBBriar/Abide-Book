@@ -95,17 +95,22 @@ Scripture narrows down the product of every desire of the flesh. Adversely are t
 
 | Mind of Flesh | Mind of Spirit|
 |:-------------:|:-------------:| 
-| ### Fear      | ### Faith     |
+|     Fear      |     Faith     |
 |   Romans 8:15 |  Hebrews 11:1 |
-| ### Shame     | ### Hope      |
+|:-------------:|:-------------:| 
+|     Shame     |     Hope      |
 |  Romans 6:21  | Ephesians 1:18|
-| ### Anger     | ### Joy       |
+|:-------------:|:-------------:| 
+|     Anger     |     Joy       |
 |  Psalm 37:8   |1 Thess 5:16-18|
-| ### Pride     |### Humility   |
+|:-------------:|:-------------:| 
+|     Pride     |    Humility   |
 | Proverbs 8:13 |  1 Peter 5:5  |
-| ### Strife    | ### Peace     |
+|:-------------:|:-------------:| 
+|     Strife    |     Peace     |
 |Proverbs 10:12 |  John 14:27   |
-| ### Lust      | ### Love      |
+|:-------------:|:-------------:| 
+|     Lust      |     Love      |
 | 1 John 2:16   |   Matt 22:34  |
 
 Are you still living in the flesh according to the desires of your heart? Or do you belong to Christ and now live a new life in the Spirit? Jesus says that you will know them by their fruits. Are you more faithful, hopeful, joyful, humble, peaceable, and loving? If there is anything in you that is holding onto fear, shame, anger, pride, hatred, or lust, do all you can to purge yourself and put on Christlikeness -- “this is your true and proper worship” (Rom 12:1-2)
