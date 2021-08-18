@@ -108,3 +108,36 @@ Scripture narrows down the product of every desire of the flesh. Adversely are t
 |     Lust      |     Love      |
 | 1 John 2:16   |   Matt 22:34  |
 
+Are you still living in the flesh according to the desires of your heart? Or do you belong to Christ and now live a new life in the Spirit? Jesus says that you will know them by their fruits. Are you more faithful, hopeful, joyful, humble, peaceable, and loving? If there is anything in you that is holding onto fear, shame, anger, pride, hatred, or lust, do all you can to purge yourself and put on Christlikeness -- “this is your true and proper worship” (Rom 12:1-2)
+
+Paul, one of the most persecuted and forlorn Christians mentioned in the Bible, declared with certainty,  “I have learned the secret of being content in any and every situation, whether well fed or hungry, whether living in plenty or in want. I can do all this through him who gives me strength” (Phillipians 4:12b-13). Do you live everyday like Paul, looking to God for strength? Or are you so torn with self-pity that you see yourself as the victim? Vulnerability before God is vital! Don’t allow yourself to make excuses as I have for so long.
+
+As a side note, “But God” is likely the greatest transitional expression in all of the Bible. Follow the thought of this passage:
+
+“And you were dead in the trespasses and sins in which you once walked, following the course of this world, following the prince of the power of the air, the spirit that is now at work in the sons of disobedience—  among whom we all once lived in the passions of our flesh, carrying out the desires of the body and the mind, and were by nature children of wrath, like the rest of mankind.” (Eph 2:1-3)
+
+Not a very nice picture of humanity, is it? Doesn’t offer much hope, does it? Now look at the next verses:
+
+“But God, being rich in mercy, because of the great love with which he loved us, even when we were dead in our trespasses, made us alive together with Christ—by grace you have been saved”  (Eph 2:4-5)
+
+“But God” is everything for the believer. It’s not like we were drowning and God gave us a raft to climb on. No, we were at the bottom of the ocean floor, DROWNED, dead as dust. But God, rich in mercy, love and grace, offers us life: 
+
+“The chastisement for our peace was upon Him, And by His stripes we are healed” (Isa 53:5)
+
+“But God proves His love for us in this: While we were yet sinners, Christ died for us” (Rom 5:8)
+
+But God, being rich in mercy, gave up his son, knowing full well that the very one’s he’d die to forgive would torture and kill him! He sought to satisfy justice and put away sin once and for all. It is a moment of tragic irony-- that the Messiah, the one the Jews were waiting for, the only one able to take away our iniquity, would die by the same sinner’s hands. And I’m not so sure it would be any different if you or I were instead of the people that condemned him. 
+
+This is why we rejoice at the cross, it is forgiveness! This is why we rejoice at the empty tomb, it is freedom! Jesus is everything for the believer, and stands as our inspiration for living radically and carrying out the great commission. Without Christ, the cross, and the empty tomb, there is no hope. Without God’s great forbearance in sending his son, there is no life for anyone. Without Jesus, we are nothing. This is why we love Jesus, why we praise him and thank him for hours and hours! Recognize this: without Jesus, there is only death. We would not have forgiveness and so, would all be condemned to an eternity of suffering in Hell. So take a moment to thank God for Jesus!
+
+Before I came to a place of peace and rest in God’s promises, bitterness consumed me. I was blinded to the rich life God offered. I knew God, but holding onto sin kept me from experiencing his fullness. I was in love with thinking myself a victim. I was in love with the darkness of pride and was therefore dead. But God! Being rich in mercy! O Lord, how great is your name in all the Earth! I’m so thankful for his mercy and grace! God raised me to new life physically by curing my cancer and infections. Exponentially more important, he gave me new life in the spirit. Jesus became the propitiation for you and for me! He shines like the sun in his radiance and glory! Where sin and death once reigned, Christ is king.
+
+The doctors, my family and myself only saw the one outcome. We were all like children, nearsighted and ignorant. Thankfully God looks through a different lens. He is our good Father and knows what we need. Oftentimes we tell him the things we want, thinking they are essential. At the time I asked God to save me from my cancer when what I really needed was for him to save me from my sin. It’s not just a three letter word, it’s an impassable barrier between myself and God and only by the blood of Jesus am I forgiven and am now able to approach the throne of God’s grace and innumerable blessings. Thank you Lord for my cancer, for it brought me to a place where I could understand the depths of my sin and my great need for your saving grace!
+
+Yes God healed me from my cancer. Yes he blessed me with life. But how much greater is the blessing of being forgiven! To be united with God by the blood of Jesus! All I can say is thank you, Lord, because there’s nothing in me that is worthy! “O wretched man that I am! Who will deliver me from this body of death? I thank God—through Jesus Christ our Lord!” (Rom 7:24-25). This is why I say it’s all about Jesus! This is why the world needs Jesus! This is the climax of all history! This is why he is more than enough! Whatever you’re looking for in life, Jesus is more. Whatever you’re lacking, Jesus is enough. So walk with me through an in-depth examination of our hearts before God and seek to put off the old self which is rotten with sin and put on the righteousness of Jesus Christ that saves. 
+
+What follows is a series of self-inspections. To be transformed our minds must be renewed, as Romans 12:2 teaches. To be transformed we need to let the Holy Spirit flow through us by putting away fear, shame, anger, pride, and all sin. And walk in the newness of life by Jesus’ example, faith, hope, joy, humility, and love above all. 
+
+The first and most formidable enemy to following after Christ, is fear - our starting point to being transformed.
+
+## CHAPTER TWO: Fear
