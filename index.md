@@ -136,3 +136,46 @@ What follows is a series of self-inspections. To be transformed our minds must b
 The first and most formidable enemy to following after Christ, is fear - our starting point to being transformed.
 
 ## CHAPTER TWO: Fear
+
+It’s strange how normal things like a washing machine can be terrifying to a little child. Fear transforms simple things into dangerous monsters, even for adults! Why do people jump out of their skin when they see a spider? Odds are high that it’s not aiming to hurt you, nor can it. But for some reason they’re a source of great fear. Simply put, “fear is an uneasiness of mind, upon the thought of future harm likely to befall us. Fear is the passion of our nature which excites us to provide for our security, on the approach of evil.”  It, however, has no place in our lives because of Christ.
+
+> The Lord is my light and my salvation— whom shall I fear? The Lord is the stronghold of my life— of whom shall I be afraid?”  
+> (Psalm 27:1)
+
+A famous study from 1973 conducted by R.H. Bruskin Associates found that American’s fear public speaking more than death. The subjects of their survey would rather die than give a presentation! That is the crippling effect of fear. The pressure of public speaking overwhelmed these people so intensely and likely clouded their judgement, because I don’t think a person, if presented the task of presenting in front of a crowd, would really rather die. 
+
+Right now in this time of Covid 19 fear plagues the entire world. Thankfully we have the vaccines now, but just a few months ago, the news was ablaze with violent warnings. Stay inside! Don’t go out! Be afraid, be very afraid! Fear drove us to attack each other. Social media blew up with arguments and discord, blame shifting and name calling. Whatever your stance on the matter, it stands that fear has power, especially when there is little understanding.
+
+This makes me think of that scene in Home Alone where Kevin goes into the basement and sees the furnace. In his imaginings, it’s malicious and alive. It growls and roars at him and becomes a great threat. Later in the movie, he confronts his fear and finds that the furnace is nothing more than just that. Not all of our fears are so easily thwarted, however the solution is the same. If we frame our fears in the truth of God’s sovereignty, they cannot stand. In the light of the Son, darkness cannot stand (John 1:5). Confront your fears, give them no power by acknowledging his.
+
+How do we do this exactly? A lot of times the deep things of life are impossible to understand fully, especially the depths of the mind. And fear is so widespread! A study conducted with Chapman University to discover the most common fears in America found that “In 2018 and 2019, all the top ten fears were held by more than half of Americans. There has been a noticeable increase in people who share these fears. The study concludes, “Americans are becoming more afraid .” I can only assume the percentages have gotten worse with the rise of COVID and isolation. And not only so! According to a 2021 study by Mental Health America, people are reaching out for help with anxiety and depression more than ever. Of all the groups surveyed, young people ages 11-17 ranked highest for moderate to severe symptoms . Contributing factors are the COVID virus, money concerns, and the top factor, deprivation of social interaction: “From April to September 2020, among people who screened with moderate to severe symptoms of anxiety or depression, 70 percent reported that one of the top three things contributing to their mental health concerns was loneliness or isolation,” myself included!
+
+When she was alive, my mother was my hero. She was my foundation and stood in the place of my heart only God deserves. So whenever her condition relapsed, fear of losing her drove me mad. Fear of being left alone kept me bound. There were many times when suicide crossed my mind, thankfully (and ironically), I was too afraid to go through with it. That anxiety stayed with me long after she died, manifesting primarily in prolonged isolation and nightmares. I was participating in church, even serving in youth ministry during those years, and nothing seemed to help. I was sans help, helpless even, to live the fearless life I was called by God to live.
+
+This is a hard truth to swallow: when we fear, we sin against God. Jesus said, “Be anxious for nothing!” This is a command. When we submit to our fears and worries instead of God, we are in direct disobedience. And sinful fear creates sinful worship. If I’m afraid of heights (which I am), I’m bowing to the power of my fear instead of resting in Him. If I’m uneasy around big dogs (which I am), I’m letting my fear get the best of me. 2 Timothy 1:7 teaches, “God hath not given us the spirit of fear, but of power, and of love, and of a sound mind.” When I’m afraid, I deny the spirit God gave me.
+
+I remember so many times when I was tempted to fear in the hospital. Like I said, I was there for six months, and feelings of powerlessness loomed in my room all of the time. I remember feeling caged by uncertainty. But God did not give me a spirit of fear. God did not put me in that place to wallow in self-pity or to cast blame on the hospital for letting me get that deadly infection. Simply put, God put me there for an eternal reason: to get my heart submitted to him and to be a testimony to others of his faithfulness.
+
+Beware of being caged by your fears. To fight fear we need to understand fear. I came across two anagrams which offer a proper perspective. The first is this:
+
+### False Evidence Appearing Real
+
+Anderson (1999) shares an example. He talks about a man who grabbed a snake off of the ground and put it in a jar as a trophy. He later discovered that this particular species of snake is very poisonous and nearly had a heart attack (p. 14-15). In order for a fear to present a legitimate threat,  it must possess two qualities: immanency (nearness) and potency (powerful). Our fears are no longer legitimate when one of these attributes is removed. Scripture teaches that we have no need to fear because God removes one of these attributes. For example, the reality of death is imminent, but the power of death has been broken (1 Cor 15:54-55) (Neil Anderson, 1999, p. 14; 15; 16). When truth is applied, fear disappears. 
+ 
+I am not afraid of drowning, nor of bears, nor any danger around me because I’m not afraid of being hurt or killed. This DOES NOT mean I have no understanding of the danger or run to it. To fear is to obsess irrationally and give the object power over your peace. To have caution is to have a healthy awareness of our surroundings and any present danger, maintaining control. I don’t think the man in the story would have picked up the snake had he known it was poisonous. Had he had caution, he would have avoided the snake and fear would not have taken root. Most of our fears revolve around things we can’t control. Trust God, who is in control of all things at all times, and there is no need to be afraid of anything!
+
+The truth of scripture understands fear as a matter of submitting. It is a sin to be controlled by fear because in doing so, we worship something else. People fear living without, so they worship money. We fear not being accepted, not being beautiful enough or successful enough, so we idolize celebrities, magazine models, and people like Bill Gates and Steve Jobs. We fear creepy crawlies and other scary things because we do not fully understand God’s design and so idolize our own preferences. Do you think Adam and Eve were scared of the carnivorous beasts and harmful plants around them? Of course not, because they knew that God was with them and everything he made was good. To have a correct perspective, we must change our thinking on such things. Romans 12:1-2, famous passage, says, “Do not conform to the patterns of this world, but be transformed by the renewal of your mind so that you may test and approve what is the will of God, what is good, pleasing and perfect.” Reorienting one’s fears in light of God’s presence and the amazing gift of his son Jesus brings salvation and healing and is the first step to transformation. Unholy fear manifested horrors in me; it’s power was terrible. It will take charge over your life, but only if you let it. But God (there’s that transitional expression again!) used that fear for a purpose in my life, and I believe he can do the same for you. 
+
+### Worldly Fear creates Sinful Worship
+
+|       Fears      |        Idols        |
+|:----------------:|:-------------------:| 
+|      People      |       Approval      |
+|                  |                     |
+|      Hardship    |    The Easy Life    |
+|                  |                     |
+|       Loss       |Money, Things, People|
+|                  |                     |
+| Pain & Suffering |        Safety       |
+|                  |                     |
+|     Conflict     |        Peace        |
