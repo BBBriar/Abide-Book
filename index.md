@@ -94,18 +94,22 @@ This pushed me toward a study identifying the desires of the flesh and Spirit an
 Scripture narrows down the product of every desire of the flesh. Adversely are the products of desiring the Spirit as seen below. To abide in Christ we must abandon the desires of the flesh and seek after the Spirit: “O man of God, flee these things and pursue righteousness, godliness, faith, love, patience, gentleness” (vs 11). The mind of flesh is overwhelmed with darkness; it it there is no light. But by the gracious Spirit of God, faith cures our fear, hope enlights our shame, joy overwhelms all anger and so on and so forth. Let this be the starting point for study. We cannot abide in Christ if we are held prisoner by the mind of flesh.
 
 | Mind of Flesh | Mind of Spirit|
-| ------------- |:-------------:| 
+|:-------------:|:-------------:| 
 |     Fear      |     Faith     |
    Romans 8:15     Hebrews 11:1
+
 |     Shame     |     Hope      |
    Romans 6:21    Ephesians 1:18
+
 |     Anger     |     Joy       |
    Psalm 37:8    1 Thess 5:16-18
 
 |     Pride     |    Humility   |
+  Proverbs 8:13    1 Peter 5:5
 
 |     Strife    |     Peace     |
+ Proverbs 10:12    John 14:27
 
-|     Lust      |     Love      |
-
+|     Lust      |     Love       |
+  1 John 2:16    Matthew 22:34-40
 
