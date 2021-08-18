@@ -96,10 +96,16 @@ Scripture narrows down the product of every desire of the flesh. Adversely are t
 | Mind of Flesh | Mind of Spirit|
 | ------------- |:-------------:| 
 |     Fear      |     Faith     |
+   Romans 8:15     Hebrews 11:1
 |     Shame     |     Hope      |
+   Romans 6:21    Ephesians 1:18
 |     Anger     |     Joy       |
+   Psalm 37:8    1 Thess 5:16-18
+
 |     Pride     |    Humility   |
+
 |     Strife    |     Peace     |
+
 |     Lust      |     Love      |
 
 
