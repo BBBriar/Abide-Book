@@ -44,7 +44,7 @@ It’s absolutely mind-boggling to me that God invites us to enjoy his fullness.
 
 Jesus is the center of the Christian faith. If Jesus is not who he claimed to be, if he did not defeat death by rising on the third day, then Christians are to be pitied more than any other men. Similarly, if we hope in Christ for personal gain in this life, we are lost (1 Cor 15:12-19). It is of utmost importance that we must check the source and direction of our faith and apply it correctly in life. Our goal as Christians therefore, is to be as like Jesus as possible, to be perfected by his blood (Heb 10:14) and abide in Him as a spiritual offering (Rom 12:1-2).
  
-“Again Jesus spoke to them, saying, ‘I am the light of the world. Whoever follows me will not walk in darkness, but will have the light of life.’  (John 8:12)
+> “Again Jesus spoke to them, saying, ‘I am the light of the world. Whoever follows me will not walk in darkness, but will have the light of life.’  (John 8:12)
 
 People say that God works in mysterious ways. I suppose it’s true, especially concerning the context of Paul’s letter to the Romans. In it he discusses the sufferings of humanity and creation in conjunction with God’s sovereignty and forbearance. Evil and hardship exist, but God is faithful to help and lead us according to his will, “his good, pleasing and perfect will”  (Romans 12:2). 
 
@@ -59,7 +59,9 @@ When I was a young man, about 16, I was diagnosed with cancer and a terminal inf
 The doctors told my father that I wouldn’t live. He said there was a complication with a surgery and I contracted a deadly bacterial infection in my brain and spine. He said there was no hope.
 
 But God in his sovereignty knew the end of the story. During that time in the hospital, God taught me how to abide in Him. He taught me to trust him even when else fails. He taught me to remain joyful amidst hardship and to look to Christ Jesus as my goal. He showed me who he is, that when I am weak,  he is strong.  God becomes your strength when you lean on him in Jesus Christ alone.  And I suppose that's what this book is about, learning how to abide in Christ and be transformed by discovering truth and living sacrificially.
-Good News!
+
+### Good News!
+
 The book of John teaches, "For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life. For God did not send his Son into the world to condemn the world, but in order that the world might be saved through him. Whoever believes in him is not condemned, but whoever does not believe is condemned already, because he has not believed in the name of the only Son of God" (3:16-18). God desired to be restored to us so much so that he gave up what was most precious to Him so that we might be saved from a punishment we fully deserved. 
 
 Paul adds in Romans, "but God shows his love for us in that while we were still sinners, Christ died for us" (5:8). Verse 10 emphasizes how we were enemies of God! And he paid the price for us anyway! Never before has something so miraculous happened! Humanity is cursed by the power, presence, and eternal punishment for evil. 
@@ -107,17 +109,17 @@ Paul, one of the most persecuted and forlorn Christians mentioned in the Bible, 
 
 As a side note, “But God” is likely the greatest transitional expression in all of the Bible. Follow the thought of this passage:
 
-“And you were dead in the trespasses and sins in which you once walked, following the course of this world, following the prince of the power of the air, the spirit that is now at work in the sons of disobedience—  among whom we all once lived in the passions of our flesh, carrying out the desires of the body and the mind, and were by nature children of wrath, like the rest of mankind.” (Eph 2:1-3)
+> “And you were dead in the trespasses and sins in which you once walked, following the course of this world, following the prince of the power of the air, the spirit that is now at work in the sons of disobedience—  among whom we all once lived in the passions of our flesh, carrying out the desires of the body and the mind, and were by nature children of wrath, like the rest of mankind.” (Eph 2:1-3)
 
 Not a very nice picture of humanity, is it? Doesn’t offer much hope, does it? Now look at the next verses:
 
-“But God, being rich in mercy, because of the great love with which he loved us, even when we were dead in our trespasses, made us alive together with Christ—by grace you have been saved”  (Eph 2:4-5)
+> “But God, being rich in mercy, because of the great love with which he loved us, even when we were dead in our trespasses, made us alive together with Christ—by grace you have been saved”  (Eph 2:4-5)
 
-“But God” is everything for the believer. It’s not like we were drowning and God gave us a raft to climb on. No, we were at the bottom of the ocean floor, DROWNED, dead as dust. But God, rich in mercy, love and grace, offers us life: 
+> “But God” is everything for the believer. It’s not like we were drowning and God gave us a raft to climb on. No, we were at the bottom of the ocean floor, DROWNED, dead as dust. But God, rich in mercy, love and grace, offers us life: 
 
-“The chastisement for our peace was upon Him, And by His stripes we are healed” (Isa 53:5)
+> “The chastisement for our peace was upon Him, And by His stripes we are healed” (Isa 53:5)
 
-“But God proves His love for us in this: While we were yet sinners, Christ died for us” (Rom 5:8)
+> “But God proves His love for us in this: While we were yet sinners, Christ died for us” (Rom 5:8)
 
 But God, being rich in mercy, gave up his son, knowing full well that the very one’s he’d die to forgive would torture and kill him! He sought to satisfy justice and put away sin once and for all. It is a moment of tragic irony-- that the Messiah, the one the Jews were waiting for, the only one able to take away our iniquity, would die by the same sinner’s hands. And I’m not so sure it would be any different if you or I were instead of the people that condemned him. 
 
