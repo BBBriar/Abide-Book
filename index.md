@@ -1,8 +1,8 @@
-![image12](https://user-images.githubusercontent.com/89104596/129842886-81b26ce2-3098-461a-999b-d27f71bfa69b.png)
-
 > All rights reserved. No part of this publication may be reproduced, distributed, or transmitted in any form or by any means, including photocopying, recording, or other electronic or mechanical methods, without the prior written permission of the publisher, except in the case of brief quotations embodied in critical reviews and certain other noncommercial uses permitted by copyright law.
 
 https://bbbriar.github.io/Abide-Book/
+
+![image12](https://user-images.githubusercontent.com/89104596/129842886-81b26ce2-3098-461a-999b-d27f71bfa69b.png)
 
 > In view of God’s mercy
 
@@ -268,3 +268,73 @@ I remember trying to read the Bible in my youth, loving the stories and famous p
 > “Rejoice in the Lord always, again I will say rejoice. Let your reasonableness be known to everyone, the Lord is at hand; do not be anxious about anything, but in everything by prayer and supplication with thanksgiving let your requests be made known to God. And the peace of God, which surpasses all understanding, will guard your hearts and your minds in Christ Jesus.” (Phil 4:4-7)
 
 > “Who among you fears the Lord and obeys the word of his servant? Let the one who walks in the dark, who has no light, trust in the name of the Lord and rely on their God.” (Isaiah 50:10)
+
+## Chapter Three: Shame
+
+### Sin, Guilt, Shame, and Doubt
+
+The words Guilt and Shame are often intertwined with the same meaning. And though the difference is subtle and often missed, they do have distinct meanings. To experience guilt is to be held responsible. It is a legal term that locates the action of misdemeanor onto a specific person. To feel shame is to bemoan and deplore one’s self, not necessarily his or her actions. It is the painful feeling caused by awareness of wrong behavior. The two words are closely linked-- shame typically follows guilt. 
+	
+Imagine you are driving and a police officer pulls you over for speeding? When the officer explains the nature of your grievance, do you say, “Yeah, you got me. I’m guilty.”? Or do you try to weasel your way out of a ticket? We are not so quick to hold ourselves accountable. Only after you receive the ticket do we admit, “I shouldn’t have gone past the speed limit!” Depending on the strength of your conscience, you may guilt-trip yourself for bad behavior, but usually the regret doesn’t come until after we’ve been proven guilty. No one feels ashamed of something they didn’t do. In fact a person is likely to get offended if you accuse them unjustly for that very reason.
+
+In the case of our sin against God, it is all too easy to get caught in a loop of shame. Knowing the depths of my sin is a shoo-in for spiraling self-blame and condemnation. Not only that, but also that it is because of my own personal sin that Jesus had to suffer and die on a cross. My guiltiness before the throne brings me to my knees. And if I stop there, it is hopeless! Isaiah, the Psalmist, and Paul personally feel the weight of their imperfection, and the guilt is deep:
+
+> “Woe is me, for I am undone! Because I am a man of unclean lips, and I dwell in the midst of a people of unclean lips; for my eyes have seen the King, the Lord of hosts” (Isa 6:5) 
+> “If you, LORD, kept a record of sins, Lord, who could stand?” (Ps 130:3)
+> “What a wretched man I am! Who will rescue me from this body that is subject to death?” (Rom 7:24)
+
+Sin, which leads to guilt before God, which leads to shame before ourselves, which leads to doubt about our salvation or about God or our ability to measure up to his or others standards, which allows sin, guilt, and shame to deepen and the cycle continues. What will stop this swirling pool of sin? 
+
+![image](https://user-images.githubusercontent.com/89104596/129847163-dcd955e1-da15-4870-a2e1-d3a38c136cd7.png)
+
+Thankfully, the story doesn’t end there. Trusting God in the midst of suffering and our inability to please God brings great growth. Focusing on His goodness instead of their problems, Isaiah, the Psalmist, and Paul exemplify trust and peace:
+
+> “Lord, you are my God; I will exalt you and praise your name, for in perfect faithfulness  you have done wonderful things,  things planned long ago” (Isa 25:1)
+> “But with you there is forgiveness, that you may be feared” (Ps 130:4)
+> “But thanks be to God through Jesus Christ our Lord! So then I myself serve the law of God with my mind but with my flesh I serve the law of sin” (Rom 7:25)
+
+Isaiah acknowledges God’s faithfulness and responds in faith; the Psalmist experienced God’s forgiveness and trusts in His grace; Paul found transformation from death to new life through Christ and so can we!
+
+Freedom is a foreign concept to many people around the world. So many live in countries that violently oppress their citizens. North Korea is notorious for how ruthlessly it tortures its people. Its many prison camps alone are enough to raise the most indifferent souls to alarming concern . Not to mention withholding basic needs like food and personal freedoms, even the most basic right to life is threatened by public executions!  Those of us living in America can hardly imagine this kind of political persecution. We may be bold enough to say we experience it slightly, but never to that degree!
+
+Thankfully, God offers an eternal solution that is not focused on the suffering we experience during this short lifetime, but during the great expansions of eternity! God offers freedom from the penalty of sin and eternal suffering in Hell (a legally just punishment for any sinner). Out of his goodness and love for his people, (you know the story), God gave us his son to be punished on our behalf.  Because of this, and in keeping with the topic, we no longer need to bear the burden of sin nor guilt nor shame nor doubt. The simple truth is Jesus already did it for us. We no longer have to worry. I realize this isn’t as easy to practice as it is to say. We must relearn it everyday, lest we fall into the category below:
+
+> “His divine power has given us everything we need for a godly life through our knowledge of him who called us by his own glory and goodness… But whoever does not have them is nearsighted and blind, forgetting that they have been cleansed from their past sins” (2 Peter 1:3; 9)
+
+The “them” Peter identifies are qualities of the growing Christian (2 Peter 1:5-8). Have we lost our way so badly, are we so nearsighted and blind that we have forgotten the great sacrifice of Jesus and the power of God to forgive our sins? Are we so caught in the power of shame that we’ve lost our identity in Christ and now place it in our sins? I know from personal experience how easy it is to fall into legalism and hold ourselves harshly accountable for past sins, especially habitual sins that are challenging to get rid of. How arrogant am I to say God is not able to forgive me! That was the depth of my shame and its malevolent power! It was so potent in my reflections that I limited God’s power. 
+	
+I remember one of the first students I had as a volunteer youth teacher came to me so upset about his inability to live perfectly according to God’s commandments. He was so distressed; he couldn’t understand how God could change his heart, or forgive him at all! This kind of shame is debilitating to your faith. Imagine how Adam and Eve must have felt! Instead of running to God as children, Adam said, “I was afraid, because I was naked.” (Gen 3:10b). When our sins and shortcomings are revealed, it does feel like we are defenseless, naked like they were. Think about how it must’ve felt to be kicked out of paradise, how you would loathe yourself for sinning against God! If only you could go back and have a do over! 
+
+Or think about how Peter felt after denying Jesus three times. On the night of Jesus’ betrayal, Peter promises that he would lay his life before betraying his Lord (John 13:37). Later that very night, as Peter is accused of being one of the disciples, he does the opposite of standing up for Jesus. He does not lay down his life, but denies any and all association with Jesus. He is more afraid for his own well-being than for his so-called ‘Lord.’ But unlike the story of Adam and Eve as told in the Bible, Peter grew to understand the power of God’s grace. Though Peter most likely lived with great shame for selling out his Savior, God still had a purpose for him. 
+
+When Jesus returned after being crucified, he came to Peter: ‘“He said to him the third time, ‘Simon, son of John, do you love me?’ Peter was grieved because he said to him the third time, ‘Do you love me?’ and he said to him, ‘Lord, you know everything; you know that I love you.’ Jesus said to him, ‘Feed my sheep’” (John 21:17). Just because we hold onto guilt, that doesn’t mean God holds judgement against us. He is faithful to forgive if we would be honest and humble before him.
+
+Jesus is the ultimate example for Christians to follow. Not just in his holiness, but how he fought against temptations to sin. We read in Matthew 4:1 that he was led by the Spirit, of whom he was full, to be tempted in the desert. Famous theologian and philosopher Thomas Aquinas reasons he did so for four reasons. His first three reasons are to strengthen us against temptations, to be warned against temptations, and to teach us how to overcome temptation, and fourthly, to fill us with confidence in his mercy. Jesus is our example and inspiration for holy living.
+
+Hebrews 4:15 confirms, "We have not a high-priest, who cannot have compassion on our infirmities, but one tempted in all things like as we are, without sin." God does not look down at his children, not even the worst of us, with contempt or remorse, wishing us never to have been born. He loves us unconditionally and is faithful to sanctify and perfect us in our faith. On the other hand, free will dictates that the burden is on you to choose. God opened the door by opening your eyes, now you have to walk through.
+
+> “Therefore, brothers, be all the more diligent to confirm you calling and election, for if you practice these qualities you will never fall” (2 Peter 1:10)
+
+### Freedom is a Verb
+
+It’s said that you can lead an animal to water but you can’t make it drink. In order to experience true unity with the Father and like-mindedness with the Son and Spirit, we must be vulnerable and submit before the cross in all humility! Holding on to shame is holding onto doubt. When I told Matt about the shame I held onto because of how I offended him, he taught me about vulnerability and the great power in forgiving one’s self. This might simply be new age philosophy, but I think it’s very applicable to the topic. The Bible never speaks directly about forgiving yourself, only about trusting in Jesus’ sacrifice on the cross for forgiveness and the command to forgive others. What it really comes down to is do I trust God? Do I trust his plans for my life?
+
+An excerpt from Baker’s Dictionary of Theology reads, “The New Testament deepens and expands the concept of shame. A disciple of Christ stands with him unashamedly in a world that finds the cross (Heb 12:2), God's ways (1 Cor 1:27), and God's persecuted messengers (2 Timothy 1:8; 1:12) shameful. Those ashamed of him now will find Christ ashamed of them on the day of judgment (Mark 8:38; Luke 9:26). Conversely, God is not ashamed to call the faithful "brothers" of Christ (Heb 2:11).” 
+
+At the cross, our worldly shames are taken care of. At the cross, we put on a new type-- we stand united with Christ wholly unashamed. Shame of sin is cast on the Lord who is faithful to bear the weight of all our burdens. And we go unto the world, unashamedly sharing his love with others.
+
+Ask yourself: Do I trust God enough to stand naked before him, showing all of my weaknesses and shames? Am I too ashamed to pick up my cross and follow Jesus’ example? Do I love God enough to do what he commands, despite my many weaknesses? Will I continue to serve God even when the world turns it’s back on me and looks down at me with shame? 
+
+When I read Paul’s epistles, I’m overwhelmed with the grace of God. When I read James, I’m overwhelmed with responsibility. Paul often opens his letters by identifying himself as an apostle on a mission. He blesses the churches with grace, peace and mercy from God the father and Christ Jesus. James starts his letter identifying himself as a slave and servant of God and of Christ. He encourages his readers to welcome trials and sufferings as a means to test one’s faith and so produce steadfastness which , in its full effect, makes one “perfect and complete, lacking in nothing” (Jam 1:4). 
+
+The two views are sides of the same coin. Yes, we must rely heavily on God’s grace, peace, and mercy! Yes, we must take responsibility for our faith! Yes, no one is saved by works alone but only by the blood of Jesus are we forgiven and so have entrance into the kingdom of God. Yes, works confirm our salvation and as ambassadors, we honor God by living righteously. I don’t know that any of us are able to stand when things get rough, only by his power and mercy are any of us still alive! Neither do I know any bible believing Christian who is content to go live atop a mountain, just them and Jesus. We are commanded to go, therefore (Matt 28:19), not, keep the blessing of truth for yourselves! So take off the shame that so hinders your mission, O Christian! 
+
+I can recall the exact moment God revealed this truth to me. I was deep in the cycle of sin and self-condemnation! Like Paul I recognized the battle raging within me: In my heart of hearts I so desire to serve God. But I still have this human weakness that so desires to serve its lustful desires. He admits in desperation: “I do not understand what I do. For what I want to do I do not do, but what I hate I do.” He goes on, “For I have the desire to do what is good, but I cannot carry it out. For I do not do the good I want to do, but the evil I do not want to do-- this I keep on doing. Now if I do what I do not want to do, it is no longer I who do it, but it is sin living in me that does it” (Romans 7:15; 18b-20). 
+
+Matthew Henry comments on the passage, “the apostle did not mean that men are not accountable for their sins, but he teaches the evil of their sins, by showing that they are all done against reason and conscience. Sin dwelling in a man does not prove its ruling or having dominion over him. If a man dwells in a city or in a country, still he may not rule there.”  It is the eternal battle, good vs evil, only inside every reborn Christian; the old self at war with the new spirit. Sin is still alive and well in us. It is how Adam and Eve could sin so directly against God, how Moses could commit murder, how Peter denied Jesus, and how Ananias and Sapphira could lie to the Holy Spirit. Every one of us is just a step away from committing grievous sins. So we must meet the enemy wherever he is. 
+
+> “Little children, you are from God and have overcome them, for he who is in you is greater than he who is in the world” (1 John 4:4)
+
+Wearing shame is accepting defeat. But because of God’s sufficient grace (2 Cor 12:9), we can wear his forgiveness and mercy instead. As we learn to offer our shame to God, our trust in him grows, and lasting victory over sin is sure to come. There will always be sin in the believer, but if we trust him, he is faithful to sanctify us more and more into the likeness of his son, Jesus. 
+
+You gotta act freedom out and apply it before it becomes real. You can be free and not know it! Don’t let shame overwhelm you so that you become like 2 Peter 1 and forget that you have been cleansed of your sins, once and for all. Instead, stand on God’s promises. Therefore, practice Paul’s wisdom from Philippians 3:12: “but this one thing I do-- forgetting what is behind and straining toward what is ahead.”  
