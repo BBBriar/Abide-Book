@@ -89,7 +89,17 @@ Forgiveness and eternal life in Heaven are not given to us freely. These came at
 
 Paul gives a long exhortation about what it looks like to repent and believe (Rom 8:1-17). He describes all people as fitting into two categories, those with the mind of flesh and those with the mind of the Spirit: People who set their minds on what the body desires and people who set their minds on what the Spirit desires (vs 5). The end result of these desires, Paul concludes, are death and life respectively. Only by trusting in the redemptive power of Jesus does the Spirit give life (vs 11). Because of this gift, we have a duty in life: “but it is not to the flesh, to live according to it” (vs 12b).
 
-This pushed me toward a study identifying the desires of the flesh and Spirit and what the Bible says they produce. For instance, desire for wealth and luxury makes one dependent on such things and creates gaping holes in a person when they’re not readily available. Consider the link between econmic recession and suicide. This is why it says in 1 Tim 6:10 that the love of money and greediness “pierces” the person “with many sorrows.” It is the root of all evil because it encourages the person to think and do things contrary to their own well-being. Consider even the person of great economic fortune. They are often under such stress that there is no room for happiness; identity based on gain logically leads one to never being satisfied with what one has. 
+This pushed me toward a study identifying the desires of the flesh and Spirit and what the Bible says they produce. For instance, desire for wealth and luxury makes one dependent on such things and creates gaping holes in a person when they’re not readily available. Consider the link between econmic recession and suicide. This is why it says in 1 Tim 6:10 that the love of money and greediness “pierces” the person “with many sorrows.” It is the root of all evil because it encourages the person to think and do things contrary to their own well-being. Consider even the person of great economic fortune. They are often under such stress that thereM is no room for happiness; identity based on gain logically leads one to never being satisfied with what one has. 
 
 Scripture narrows down the product of every desire of the flesh. Adversely are the products of desiring the Spirit as seen below. To abide in Christ we must abandon the desires of the flesh and seek after the Spirit: “O man of God, flee these things and pursue righteousness, godliness, faith, love, patience, gentleness” (vs 11). The mind of flesh is overwhelmed with darkness; it it there is no light. But by the gracious Spirit of God, faith cures our fear, hope enlights our shame, joy overwhelms all anger and so on and so forth. Let this be the starting point for study. We cannot abide in Christ if we are held prisoner by the mind of flesh.
+
+| Mind of Flesh | Mind of Spirit|
+| ------------- |:-------------:| 
+|     Fear      |     Faith     |
+|     Shame     |     Hope      |
+|     Anger     |     Joy       |
+|     Pride     |    Humility   |
+|     Strife    |     Peace     |
+|     Lust      |     Love      |
+
 
